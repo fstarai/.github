@@ -1,0 +1,1 @@
+Frontier Star (F* ঞ✦ঞ) is the building the world's Science OS aligned with path toward progressive System-4. Our Science Computer transforms the way we research tools and techniques of the future, enabling you to build the tools for tomorrow's massive scientific discoveries and innovations, well beyond what we are capable of achieving on our own.
