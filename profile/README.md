@@ -1,0 +1,1 @@
+F* is an applied research lab working on open source projects to advance the state of the art in recursive improvement and automated reasoning. Our approach is to build AI mathematician that's utilizing supertasking and being effective than any one system in its own Agent Computer Platform.
